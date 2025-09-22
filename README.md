@@ -1,0 +1,1 @@
+# g2Min.github.io
